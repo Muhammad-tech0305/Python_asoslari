@@ -1,0 +1,1 @@
+# Xatolar bilan ishlash
